@@ -1,3 +1,4 @@
+www.bitcoin.org
 Bitcoin  is  not  energy!   It  is  its  own 
 currency  and only  the  creator  aka  Satoshinakamoto
 is  authorized  and  supreme  authority  above all 
